@@ -14,4 +14,4 @@ RAPE THE DOG/DOG, IT/DOG PRONOUNS, HE/HIM WITH PERMISSION, THEY/THEM NEVER
 ** FEEL FREE TO INTERACT, I'M NICE, JUST SOCIALLY AWKWARD :)(MORE SCARED OF YOU THAN YOU ARE OF ME)
 ** HAIL SATAN, RAPE THE DOG <3
 
-SIGN MY ATA, (CHECK OUT MY TUMBLR)[https://www.tumblr.com/fuckdogslop?source=share], DM ME @fuckdogslop
+SIGN MY ATA, [CHECK OUT MY TUMBLR](https://www.tumblr.com/fuckdogslop?source=share), DM ME @fuckdogslop
