@@ -5,13 +5,6 @@
   </a>
 </p>
 
-RAPE THE DOG/DOG, IT/DOG PRONOUNS, HE/HIM WITH PERMISSION, THEY/THEM NEVER
-** AGENDER SATANIST WEREWOLF PARAPHILE
-** AGELESS BODILY MINOR
-** BPD, OCD, ASD, ADHD, FML...
-** C+H ALWAYS OKAY, MAY DISCONNECT WITHOUT WARNING
-** ANTI HARASSMENT, IDGAF ABOUT ONLINE DISCOURSE, I HIDE FREELY
-** FEEL FREE TO INTERACT, I'M NICE, JUST SOCIALLY AWKWARD :)(MORE SCARED OF YOU THAN YOU ARE OF ME)
-** HAIL SATAN, RAPE THE DOG <3
+[ATABOOK](https://fuckdogslop.atabook.org/), [STRAWPAGE](https://fuckdogslop.straw.page), [TUMBLR](https://www.tumblr.com/fuckdogslop?source=share), DM ME @fuckdogslop
 
-[SIGN MY ATA](https://fuckdogslop.atabook.org/), [CHECK OUT MY TUMBLR](https://www.tumblr.com/fuckdogslop?source=share), DM ME @fuckdogslop
+EYESTRAIN WARNING FOR STRAWPAGE. EASY VIEW ABOUT ME
