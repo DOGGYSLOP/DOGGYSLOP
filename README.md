@@ -7,4 +7,4 @@
 
 [ATABOOK](https://fuckdogslop.atabook.org/), [STRAWPAGE](https://fuckdogslop.straw.page), [TUMBLR](https://www.tumblr.com/fuckdogslop?source=share), DM ME @fuckdogslop
 
-EYESTRAIN WARNING FOR STRAWPAGE. [ASY VIEW ABOUT ME](https://rentry.co/fuckdogslop)
+EYESTRAIN WARNING FOR STRAWPAGE. [EASY VIEW ABOUT ME](https://rentry.co/fuckdogslop)
